@@ -8,4 +8,4 @@ MDD   Chronic DPDR   suspected STPD</p>
 <h3 align="center"><code>Do Not Interact</code></h3>
 <p align="center">Obviously basic criteria, Subkit, Subgraft, Medsword, Sebpainter, Proship, Dakrship, Radqueer, Transfur, Anti furry, Okegom, Dandy's Wolrd, Flavor Frenzy, Glorify or into gross things (such as inc3st and presudo-inc3st, pedo, zoo, lolishota, dubcon, noncon and etcetera).</p>
 <h2 align="center"></h2>
-<p align="center">that's pretty much it. You can contact me via neospring (<a href="https://neospring.org/@hellstar">@hellstar</a>) or discord (<a href="https://discordid.netlify.app/?id=1336715532321165412">_vo1dstarx</a>). Also the second gif was pasted there primarily because I find Medkit's sped up jumps and walk animation funny.
+<p align="center">that's pretty much it. You can contact me via neospring (<a href="https://neospring.org/@hellstar">@hellstar</a>) or discord (<a href="https://discordid.netlify.app/?id=1336715532321165412">_vo1dstarx</a>).
