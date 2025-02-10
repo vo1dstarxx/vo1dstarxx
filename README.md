@@ -1,4 +1,3 @@
-<p align="center"><img src="https://file.garden/Z0mJp8fNfWMaZSv3/Resources/buttons/html_incomp.gif"/></p>
 <p align="center"><img src="https://file.garden/Z0mJp8fNfWMaZSv3/Resources/Dump/medkitded.gif" height="150px" width="auto"/> <img src="https://file.garden/Z0mJp8fNfWMaZSv3/Resources/Dump/help!!.gif" height="150px" width="auto"/></p>
 <p align="center">He They   17   white ru   non-partnering trans<br/>
 MDD   Chronic DPDR   suspected STPD</p>
