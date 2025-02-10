@@ -2,7 +2,7 @@
 <p align="center">I have hard time wording and describing things, incoherent most of the time, excessively elaborate on things and yare yare. Cannot for the life of it pinpoint or convey tones. I've had attachment problems for as long as I've known myself, my current medication and self-work seem to be clearing it up bit by bit. I don't play if I feel awful, still trying to limit my interactions with others during those episodes.</p>
 <p align="center"> Down to yap (unless you fit into my "dni") almost about anything (that includes trash talking. obviously without harassment), however I would prefer to not talk to anyone under 15. Please whispers only as otherwise I won't see shit, even with that I usually miss a message or two. Always fine with c + h, I probably won't even notice. I don't care if you cover my pixels, just request you to not be an asshole about others being uncomfortable with it.</p>
 <h2 align="center"></h2>
-<h3 align="center"><code>Do Not Interact</code></h3>
+<h3 align="center"><code>Do Not Talk To Me Thanks</code></h3>
 <p align="center">Obviously basic criteria, Subkit, Subgraft, Medsword, Sebpainter, Proship, Dakrship, Radqueer, Transfur, Anti furry, Okegom, Dandy's Wolrd, Flavor Frenzy, Glorify or into gross things (such as inc3st and presudo-inc3st, pedo, zoo, lolishota, dubcon, noncon and etcetera).</p>
 <h2 align="center"></h2>
 <p align="center">that's pretty much it. You can contact me via neospring (<a href="https://neospring.org/@hellstar">@hellstar</a>) or discord (<a href="https://discordid.netlify.app/?id=1336715532321165412">_vo1dstarx</a>).
