@@ -1,16 +1,11 @@
-## Hi there 👋
-
-<!--
-**vo1dstarxx/vo1dstarxx** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<p align="center"><img src="https://file.garden/Z0mJp8fNfWMaZSv3/Resources/Dump/medkitded.gif" height="150px" width="auto"/> <img src="https://file.garden/Z0mJp8fNfWMaZSv3/Resources/Dump/help!!.gif" height="150px" width="auto"/></p>
+<p align="center">He They   17   white ru   non-partnering trans<br/>
+MDD   Chronic DPDR   suspected STPD</p>
+<h2 align="center"></h2>
+<p align="center">I have hard time wording and describing things, incoherent most of the time, excessively elaborate on things and yare yare. Cannot for the life of it pinpoint or convey tones. I've had attachment problems for as long as I've known myself, my current medication and self-work seem to be clearing it up bit by bit. I don't play if I feel awful, still trying to limit my interactions with others during those episodes.</p>
+<p align="center"> Down to yap (unless you fit into my "dni") almost about anything, that includes trash talking (without harassment, of course) and talking about ships, however I would prefer to not talk to anyone under 15. Please whispers only as otherwise I won't see shit, even with that I usually miss a message or two. Always fine with c + h, I probably won't even notice. I don't care if you cover my pixels, just request you to not be an asshole about others being uncomfortable with it.</p>
+<h2 align="center"></h2>
+<h3 align="center"><code>Do Not Interact</code></h3>
+<p align="center">Obviously basic criteria, Subkit, Subgraft, Medsword, Sebpainter, Proship, Dakrship, Radqueer, Transfur, Anti furry, Okegom, Dandy's Wolrd, Flavor Frenzy, Glorify or into gross things (such as inc3st and presudo-inc3st, pedo, zoo, lolishota, dubcon, noncon and etcetera).</p>
+<h2 align="center"></h2>
+<p align="center">that's pretty much it. You can contact me via neospring (<a href="https://neospring.org/@hellstar">@hellstar</a>) or discord (<a href="https://discordid.netlify.app/?id=1336715532321165412">_vo1dstarx</a>). Also the second gif was pasted there primarily because I find Medkit's sped up jumps and walk animation funny.
