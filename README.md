@@ -1,15 +1,14 @@
-<img src="https://file.garden/Z0mJp8fNfWMaZSv3/Resources/Dump/medkitded.gif" height="150px" width="auto"/> <img src="https://file.garden/Z0mJp8fNfWMaZSv3/Resources/Dump/help!!.gif" height="150px" width="auto"/>
-### General
-> - Please don't start any actual conversations if you're under 15, otherwise are very welcome to interact (unless you fit into my "dni", obviously).
-> - I have hard time wording and describing things, incoherent most of the time, excessively elaborate on things and yare yare. I might have a mood swing or two, however I am on sedatives and in therapy.
-> - Please don't talk to me or try to bound just because of my idenitty.
-
-### Please don't talk to me or interact in any way
+<img src="https://file.garden/Z0mJp8fNfWMaZSv3/Resources/Dump/medkitded.gif" height="150px" width="auto"/> <img src="https://file.garden/Z0mJp8fNfWMaZSv3/Resources/Dump/phighting-medkit.gif" height="150px" width="auto"/> <img src="https://file.garden/Z0mJp8fNfWMaZSv3/Resources/Dump/medkit.gif" height="150px" width="auto"/> <img src="https://file.garden/Z0mJp8fNfWMaZSv3/Resources/Dump/medkit-phighting.gif" height="150px" width="auto"/> <img src="https://file.garden/Z0mJp8fNfWMaZSv3/Resources/Dump/help.gif" height="150px" width="auto"/>
+### Please don't talk to me or interact.
 > - Basic criteria (use slurs cannot reclaim, zionists and whatever whatever).
 > - Subkit, Subgraft, Medsword, Sebpainter.
 > - Proship, Dakrship,  Radqueer, Glorify or into gross things ( inc3st, presudo-inc3st, pedo, zoo, lolishota, dubcon, noncon and etcetera).
 > - Transfur, Anti furry.
 > - Okegom, Dandy's Wolrd, Flavor Frenzy.
+> - You're under 15.
+### Otherwise,
+> - You are very welcome to start a convo with me. Would still prefer for you to be in P! fandom.
+> - I have hard time wording and describing things, incoherent most of the time, excessively elaborate on things and yare yare.
+> - I have bad impulsitivy control among with other things, I am on sedatives and in therapy.
 
-
-You can contact me via neospring (<a href="https://neospring.org/@hellstar">@hellstar</a>) or discord (<a href="https://discordid.netlify.app/?id=1336715532321165412">_vo1dstarx</a>).
+You can contact me via neospring (<a href="https://neospring.org/@hellstar">@hellstar</a>) or discord (<a href="https://discordid.netlify.app/?id=1336715532321165412">_vo1dstarx</a>), no preference.
