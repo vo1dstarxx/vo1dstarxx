@@ -9,6 +9,6 @@
 ### Otherwise,
 > - You are very welcome to start a convo with me. Would still prefer for you to be in P! fandom.
 > - I have hard time wording and describing things, incoherent most of the time, excessively elaborate on things and yare yare.
-> - I have bad impulsitivy control among with other things, I am on sedatives and in therapy.
+> - I have bad impulse control among with other things, I am on sedatives and in therapy.
 
 You can contact me via neospring (<a href="https://neospring.org/@hellstar">@hellstar</a>) or discord (<a href="https://discordid.netlify.app/?id=1336715532321165412">_vo1dstarx</a>), no preference.
