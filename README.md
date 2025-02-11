@@ -5,7 +5,7 @@
 > - Proship, Dakrship,  Radqueer, Glorify or into gross things ( inc3st, presudo-inc3st, pedo, zoo, lolishota, dubcon, noncon and etcetera).
 > - Transfur, Anti furry.
 > - Okegom, Dandy's Wolrd, Flavor Frenzy.
-> - You're under 15.
+> - Preferably if you're under 15.
 ### Otherwise,
 > - You are very welcome to start a convo with me. Would still prefer for you to be in P! fandom.
 > - I have hard time wording and describing things, incoherent most of the time, excessively elaborate on things and yare yare.
