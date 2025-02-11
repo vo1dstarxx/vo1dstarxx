@@ -4,7 +4,7 @@
 > - I have hard time wording and describing things, incoherent most of the time, excessively elaborate on things and yare yare. I might have a mood swing or two, however I am on sedatives and in therapy.
 > - Please don't talk to me or try to bound just because of my idenitty.
 
-### Do Not Interact
+### Please don't talk to me or interact in any way
 > - Basic criteria (use slurs cannot reclaim, zionists and whatever whatever).
 > - Subkit, Subgraft, Medsword, Sebpainter.
 > - Proship, Dakrship,  Radqueer, Glorify or into gross things ( inc3st, presudo-inc3st, pedo, zoo, lolishota, dubcon, noncon and etcetera).
