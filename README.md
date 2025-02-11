@@ -7,7 +7,7 @@
 > - Okegom, Dandy's Wolrd, Flavor Frenzy.
 > - Preferably if you're under 15.
 ### Otherwise,
-> - You are very welcome to start a convo with me. Would still prefer for you to be in P! fandom.
+> - You are very welcome to start a convo with me. Would still prefer for you to be into P!.
 > - I have hard time wording and describing things, incoherent most of the time, excessively elaborate on things and yare yare.
 > - I have bad impulse control among with other things, I am on sedatives and in therapy.
 
