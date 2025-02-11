@@ -1,8 +1,14 @@
-<p align="center"><img src="https://file.garden/Z0mJp8fNfWMaZSv3/Resources/Dump/medkitded.gif" height="150px" width="auto"/> <img src="https://file.garden/Z0mJp8fNfWMaZSv3/Resources/Dump/help!!.gif" height="150px" width="auto"/></p>
-<p align="center">I have hard time wording and describing things, incoherent most of the time, excessively elaborate on things and yare yare. Cannot for the life of it pinpoint or convey tones. I've had attachment problems for as long as I've known myself, my current medication and self-work seem to be clearing it up bit by bit.</p>
-<p align="center"> Down to yap (unless you fit into my "dni") almost about anything (that includes trash talking. obviously without harassment), however I would prefer to not talk to anyone under 15. Please whispers only as otherwise I won't see shit, even with that I usually miss a message or two. I don't care if you cover my pixels, just request you to not be an asshole about others being uncomfortable with it. If I don't reply I'm likely away or off tab. Also don't really favor people that don't leave (art) credits, if that matters.</p>
-<h2 align="center"></h2>
-<h3 align="center"><code>Do Not Talk To Me Thanks</code></h3>
-<p align="center">Obviously basic criteria, Subkit, Subgraft, Medsword, Sebpainter, Proship, Dakrship, Radqueer, Transfur, Anti furry, Okegom, Dandy's Wolrd, Flavor Frenzy, Glorify or into gross things (such as inc3st and presudo-inc3st, pedo, zoo, lolishota, dubcon, noncon and etcetera).</p>
-<h2 align="center"></h2>
-<p align="center">that's pretty much it. You can contact me via neospring (<a href="https://neospring.org/@hellstar">@hellstar</a>) or discord (<a href="https://discordid.netlify.app/?id=1336715532321165412">_vo1dstarx</a>).
+<img src="https://file.garden/Z0mJp8fNfWMaZSv3/Resources/Dump/medkitded.gif" height="150px" width="auto"/> <img src="https://file.garden/Z0mJp8fNfWMaZSv3/Resources/Dump/help!!.gif" height="150px" width="auto"/>
+> - You are very welcome to interact, I am cool about talking almost about anything. However its preferred for you to be at least 15 and older. Whispers only as otherwise I won't see anything.
+> - I have hard time wording and describing things, incoherent most of the time, excessively elaborate on things and yare yare. I might have a mood swing or two, however I am on sedatives and in therapy.
+> - Please don't talk to me or try to bound just because of my idenitty.
+
+### Do Not Interact
+> - Basic criteria (use slurs cannot reclaim, zionists and whatever whatever).
+> - Subkit, Subgraft, Medsword, Sebpainter.
+> - Proship, Dakrship,  Radqueer, Glorify or into gross things ( inc3st, presudo-inc3st, pedo, zoo, lolishota, dubcon, noncon and etcetera).
+> - Transfur, Anti furry.
+> - Okegom, Dandy's Wolrd, Flavor Frenzy.
+
+
+You can contact me via neospring (<a href="https://neospring.org/@hellstar">@hellstar</a>) or discord (<a href="https://discordid.netlify.app/?id=1336715532321165412">_vo1dstarx</a>).
