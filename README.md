@@ -2,7 +2,7 @@
 ### Please don't contact or follow me (aka dni).
 > - Basic criteria (use slurs cannot reclaim, zionists and whatever whatever).
 > - Subkit, Subgraft, Medsword, Sebpainter.
-> - Proship, Dakrship,  Radqueer, Glorify or into gross things ( inc3st, presudo-inc3st, pedo, zoo, lolishota, dubcon, noncon and etcetera).
+> - Proship, Dakrship,  Radqueer, Glorify or into disgusting shit (lolishota, incest, pseudo incest, pedo, zoo, noncon, dubcon, noncon, making layouts using criminals and school shooters, etcetera).
 > - Transfur, Anti furry.
 > - Okegom, Dandy's Wolrd, Flavor Frenzy.
 > - Preferably if you're under 15.
