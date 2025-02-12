@@ -1,5 +1,5 @@
 <img src="https://file.garden/Z0mJp8fNfWMaZSv3/Resources/Dump/medkitded.gif" height="100px" width="auto"/> <img src="https://file.garden/Z0mJp8fNfWMaZSv3/Resources/Dump/phighting-medkit.gif" height="100px" width="auto"/> <img src="https://file.garden/Z0mJp8fNfWMaZSv3/Resources/Dump/medkit.gif" height="100px" width="auto"/> <img src="https://file.garden/Z0mJp8fNfWMaZSv3/Resources/Dump/medkit-phighting.gif" height="100px" width="auto"/> <img src="https://file.garden/Z0mJp8fNfWMaZSv3/Resources/Dump/help.gif" height="100px" width="auto"/>
-### Please don't start a conversation with me.
+### Please don't contact or follow me (aka dni).
 > - Basic criteria (use slurs cannot reclaim, zionists and whatever whatever).
 > - Subkit, Subgraft, Medsword, Sebpainter.
 > - Proship, Dakrship,  Radqueer, Glorify or into gross things ( inc3st, presudo-inc3st, pedo, zoo, lolishota, dubcon, noncon and etcetera).
@@ -7,8 +7,9 @@
 > - Okegom, Dandy's Wolrd, Flavor Frenzy.
 > - Preferably if you're under 15.
 ### Otherwise,
-> - You are very welcome to.
-> - Off tab a lot, usually don't know how to respond.
+> - You are very welcome to start a convo with me.
+> - My current main "fandom" is Phighting!
+> - I off tab a lot.
 > - I have hard time wording and describing things, incoherent most of the time, excessively elaborate on things and yare yare.
 > - I have bad impulse control among with other things, I am on sedatives and in therapy.
 
