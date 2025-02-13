@@ -1,4 +1,4 @@
-<img src="https://file.garden/Z0mJp8fNfWMaZSv3/Resources/Dump/medkitded.gif" height="100px" width="auto"/> <img src="https://file.garden/Z0mJp8fNfWMaZSv3/Resources/Dump/phighting-medkit.gif" height="100px" width="auto"/> <img src="https://file.garden/Z0mJp8fNfWMaZSv3/Resources/Dump/medkit.gif" height="100px" width="auto"/> <img src="https://file.garden/Z0mJp8fNfWMaZSv3/Resources/Dump/medkit-phighting.gif" height="100px" width="auto"/> <img src="https://file.garden/Z0mJp8fNfWMaZSv3/Resources/Dump/help.gif" height="100px" width="auto"/>
+<img src="https://i.postimg.cc/7hV3fRLY/medkitded.gif" height="100px" width="auto"/> <img src="https://i.postimg.cc/tCBdb8fB/phighting-medkit.gif" height="100px" width="auto"/> <img src="https://i.postimg.cc/3N7jrhYc/medkit.gif" height="100px" width="auto"/> <img src="https://i.postimg.cc/Pfzz3CMs/medkit-phighting.gif" height="100px" width="auto"/> <img src="https://i.postimg.cc/s2Q4wKTw/help.gif" height="100px" width="auto"/>
 ### Please don't contact or follow me (aka dni).
 > - Basic criteria (use slurs cannot reclaim, zionists and whatever whatever).
 > - Subkit, Subgraft, Medsword, Sebpainter.
