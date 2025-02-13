@@ -1,3 +1,4 @@
+the gifs take ages to load I'm sorry.
 <img src="https://i.postimg.cc/tCBdb8fB/phightingmedkit.gif" height="100px" width="auto"/> <img src="https://i.postimg.cc/3N7jrhYc/medkitpopit.gif" height="100px" width="auto"/> <img src="https://i.postimg.cc/7hV3fRLY/medkitded.gif" height="100px" width="auto"/> <img src="https://i.postimg.cc/s2Q4wKTw/what.gif" height="100px" width="auto"/> <img src="https://i.postimg.cc/Pfzz3CMs/medkit-phighting.gif" height="100px" width="auto"/> <img src="https://i.postimg.cc/d312ZBZ2/broken.gif" height="100px" width="auto"/>
 
 
