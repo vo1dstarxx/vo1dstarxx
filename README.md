@@ -1,5 +1,7 @@
-<img src="https://i.postimg.cc/7hV3fRLY/medkitded.gif" height="100px" width="auto"/> <img src="https://i.postimg.cc/tCBdb8fB/phighting-medkit.gif" height="100px" width="auto"/> <img src="https://i.postimg.cc/3N7jrhYc/medkit.gif" height="100px" width="auto"/> <img src="https://i.postimg.cc/Pfzz3CMs/medkit-phighting.gif" height="100px" width="auto"/> <img src="https://i.postimg.cc/s2Q4wKTw/help.gif" height="100px" width="auto"/>
-### Please don't contact or follow me (aka dni).
+<img src="https://i.postimg.cc/tCBdb8fB/phightingmedkit.gif" height="100px" width="auto"/> <img src="https://i.postimg.cc/3N7jrhYc/medkitpopit.gif" height="100px" width="auto"/> <img src="https://i.postimg.cc/7hV3fRLY/medkitded.gif" height="100px" width="auto"/> <img src="https://i.postimg.cc/s2Q4wKTw/what.gif" height="100px" width="auto"/> <img src="https://i.postimg.cc/Pfzz3CMs/medkit-phighting.gif" height="100px" width="auto"/> <img src="https://i.postimg.cc/d312ZBZ2/broken.gif" height="100px" width="auto"/>
+
+
+
 > - Basic criteria (use slurs cannot reclaim, zionists and whatever whatever).
 > - Subkit, Subgraft, Medsword, Sebpainter.
 > - Proship, Dakrship,  Radqueer, Glorify or into disgusting shit (lolishota, incest, pseudo incest, pedo, zoo, noncon, dubcon, noncon, making layouts using criminals and school shooters, etcetera).
