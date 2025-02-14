@@ -6,7 +6,7 @@
 > - Glorify criminals and school shooters (ex. make layouts with them or use them as a profile pic), no nos no buts no listens.
 > - Transfur, Anti furry.
 > - Okegom, Dandy's Wolrd, Flavor Frenzy.
-> - Preferably if you're under 15.
+> - Under 15.
 ### Otherwise,
 > - You are welcome to start a convo with me.
 > - PLEASE use whispers.
