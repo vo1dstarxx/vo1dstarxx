@@ -4,6 +4,7 @@ the gifs take ages to load I'm sorry, file garden is down. There should be six o
 > - Basic criteria (use slurs cannot reclaim, zionists and whatever whatever).
 > - Subkit, Subgraft, Medsword, Sebpainter.
 > - Proship, Dakrship,  Radqueer, Glorify or into disgusting shit (lolishota, incest, pseudo incest, pedo, zoo, noncon, dubcon, etcetera).
+> - Glorify criminals and school shooters (ex. make layouts with them or use them as a profile pic), no nos no buts no listens.
 > - Transfur, Anti furry.
 > - Okegom, Dandy's Wolrd, Flavor Frenzy.
 > - Preferably if you're under 15.
