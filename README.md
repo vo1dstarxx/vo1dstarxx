@@ -15,4 +15,4 @@
 > - Your message might've dissappeared. I reconnect alot.
 
 You can contact me via neospring (<a href="https://neospring.org/@hellstar">@hellstar</a>) or discord (<a href="https://discordid.netlify.app/?id=1336715532321165412">_vo1dstarx</a>), no preference.
-<br/>Don't glamorize pedophilia and leave art credits, bye
+<br/>Don't glamorize pedophilia, leave art credits & stop being a little bitch when asked to, bye
