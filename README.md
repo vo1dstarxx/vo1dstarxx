@@ -1,7 +1,7 @@
 <img src="https://i.postimg.cc/tCBdb8fB/phightingmedkit.gif" height="100px" width="auto"/> <img src="https://i.postimg.cc/3N7jrhYc/medkitpopit.gif" height="100px" width="auto"/> <img src="https://i.postimg.cc/7hV3fRLY/medkitded.gif" height="100px" width="auto"/> <img src="https://i.postimg.cc/Pfzz3CMs/medkit-phighting.gif" height="100px" width="auto"/> <img src="https://i.postimg.cc/d312ZBZ2/broken.gif" height="100px" width="auto"/>
 ### Please don't talk to me or interact in any way.
 > - Basic criteria (use slurs cannot reclaim, zionists and whatever whatever).
-> - Subkit, Subgraft, Medsword, Sebpainter.
+> - Enjoy subkit, subgraft, medsword or sebpainter.
 > - Proship, Dakrship,  Radqueer, Glorify or into disgusting shit (lolishota, incest, pseudo incest, pedo, zoo, noncon, dubcon, etcetera).
 > - Glorify criminals and school shooters (ex. make layouts with them or use them as a profile pic), no nos no buts no listens.
 > - Transfur, Anti furry.
