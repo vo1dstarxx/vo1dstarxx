@@ -17,6 +17,6 @@
 You can contact me via neospring (<a href="https://neospring.org/@hellstar">@hellstar</a>) or discord (<a href="https://discordid.netlify.app/?id=1336715532321165412">_vo1dstarx</a>), no preference.
 <br/>Don't glamorize pedophilia, leave art credits & stop being a little bitch when asked to, bye<br/>
 
-<a href="https://github.com/kittinan/spotify-github-profile"><img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31of7b7vy7zy6d7dwhrnpitlyrbi&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=true&bar_color=ffffff&bar_color_cover=true" alt="HTML tutorial"></a>
+<a href="https://github.com/kittinan/spotify-github-profile"><img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31of7b7vy7zy6d7dwhrnpitlyrbi&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=true&bar_color=ffffff&bar_color_cover=true" alt="HTML tutorial"></a>
 
 
