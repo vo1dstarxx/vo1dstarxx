@@ -5,7 +5,6 @@
 > - Proship, Dakrship,  Radqueer, Glorify or into disgusting shit (lolishota, incest, pseudo incest, pedo, zoo, noncon, dubcon, etcetera).
 > - Glorify criminals and school shooters (ex. make layouts with them or use them as a profile pic), no nos no buts no listens.
 > - Transfur, Anti furry.
-> - Okegom, Dandy's Wolrd, Flavor Frenzy.
 > - Under 15.
 ### Otherwise,
 > - You are welcome to start a convo with me.
