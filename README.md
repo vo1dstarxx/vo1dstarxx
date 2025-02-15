@@ -15,6 +15,8 @@
 > - Your message might've dissappeared. I reconnect alot.
 
 You can contact me via neospring (<a href="https://neospring.org/@hellstar">@hellstar</a>) or discord (<a href="https://discordid.netlify.app/?id=1336715532321165412">_vo1dstarx</a>), no preference.
-<br/>Don't glamorize pedophilia, leave art credits & stop being a little bitch when asked to, bye
+<br/>Don't glamorize pedophilia, leave art credits & stop being a little bitch when asked to, bye<br/>
+
+<p align="center"><a href="https://github.com/kittinan/spotify-github-profile"><img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31of7b7vy7zy6d7dwhrnpitlyrbi&cover_image=false&theme=default&show_offline=false&background_color=121212&interchange=false&bar_color_cover=true" alt="HTML tutorial"></a></p>
 
 
