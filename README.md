@@ -8,7 +8,7 @@
 > - Support Dandys World' and Flavor Frenzy's developer team.
 > - Under 15.
 ### Otherwise,
-> - You are welcome to start a convo with me.
+> - You are welcome to.
 > - PLEASE use whispers.
 > - I have hard time wording and describing things, incoherent most of the time, excessively elaborate on things and yare yare.
 > - I have bad impulse control among with other things, I am on sedatives and in therapy.
