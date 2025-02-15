@@ -13,7 +13,7 @@
 > - I have hard time wording and describing things, incoherent most of the time, excessively elaborate on things and yare yare.
 > - I have bad impulse control among with other things, I am on sedatives and in therapy.
 > - Your message might've dissappeared. I reconnect alot.
-> - Please check my status, time it takes for me to reply depends on it.
+> - Please check my status.
 
 You can contact me via neospring (<a href="https://neospring.org/@hellstar">@hellstar</a>) or discord (<a href="https://discordid.netlify.app/?id=1336715532321165412">_vo1dstarx</a>), no preference.
 <br/>Don't glamorize pedophilia, leave art credits & stop being a little bitch when asked to, bye<br/>
