@@ -14,6 +14,7 @@
 > - I have bad impulse control among with other things, I am on sedatives and in therapy.
 > - Your message might've dissappeared. I reconnect alot.
 > - Please check my status.
+> - Uh idk ships? ask.
 
 You can contact me via neospring (<a href="https://neospring.org/@hellstar">@hellstar</a>) or discord (<a href="https://discordid.netlify.app/?id=1336715532321165412">_vo1dstarx</a>), no preference.
 <br/>Don't glamorize pedophilia, leave art credits & stop being a little bitch when asked to, bye<br/>
