@@ -7,10 +7,10 @@
 
 <img src="https://i.postimg.cc/gk7nfHjQ/chain2.png" width="100%"/>
 
- ### Please don't start any actual conversations with me.
-> - Basic criteria (use slurs cannot reclaim, joke about disgusting topics, zionists and whatever whatever etcetera).
+ ### Please don't start any actual conversations with me
+> - Fit basic criteria (use slurs cannot reclaim, joke about disgusting topics, zionists and whatever whatever etcetera).
 > - Enjoy subkit, subgraft, medsword, sebpainter.
-> - Proship, Darkship,  Radqueer, Glorify or into disgusting shit (lolishota, incest, pseudo incest, pedo, zoo, noncon, dubcon, etcetera).
+> - Proshipper, Darkshipper,  Radqueer or use any labels that are only being accepted within radqueer circles, Glorify or into disgusting things (cub, lolishota, incest, pseudo incest, pedo, zoo, noncon, dubcon, etcetera).
 > - Transfur, Anti furry.
 > - Support or "neutral" to Dandys World / Flavor Frenzy team.
 > - Under 15.
@@ -21,11 +21,9 @@
 > - You are welcome to.
 > - PLEASE use whispers.
 > - Please check my status. None of them are equal to "do not interact", they only reflect how long it may take for me to respond.
-> - Uh idk. ships? ask.
+> - Idk. ships? ask.
 
 <img src="https://i.postimg.cc/gk7nfHjQ/chain2.png" width="100%"/>
 
-You can contact me via neospring (<a href="https://neospring.org/@hellstar">@hellstar</a>) or discord (<a href="https://discordid.netlify.app/?id=1336715532321165412">_vo1dstarx</a>), no preference.
-
-bye
+That's pretty much it. Feel free to ask about anything on there/generally whatever you're curious about. Additionally you can contact me via neospring (<a href="https://neospring.org/@hellstar">@hellstar</a>) or discord (<a href="https://discordid.netlify.app/?id=1336715532321165412">_vo1dstarx</a>), no preference. Bye
 
