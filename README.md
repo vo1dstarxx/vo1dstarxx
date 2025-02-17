@@ -1,7 +1,7 @@
 <img src="https://i.postimg.cc/tCBdb8fB/phightingmedkit.gif" height="90px" width="auto"/> <img src="https://i.postimg.cc/3N7jrhYc/medkitpopit.gif" height="90px" width="auto"/> <img src="https://i.postimg.cc/7hV3fRLY/medkitded.gif" height="90px" width="auto"/> <img src="https://i.postimg.cc/Pfzz3CMs/medkit-phighting.gif" height="90px" width="auto"/> <img src="https://i.postimg.cc/C5HNb1c0/7mk0-2.gif" height="90px" width="auto"/> <img src="https://i.postimg.cc/rF4D2t4p/roblox-medkit.gif" height="90px" width="auto"/> <img src="https://i.postimg.cc/gjCpqWvK/mekik.gif" height="90px" width="auto"/>
 
 ### About
-> - I have problems wording, describing and explaining things. Along with that I may become incoherent, deffinitely don't feel bad about telling me to reword something.
+> - I have problems wording, describing and explaining things.
 > - I misread a lot and may skip something, sorry.
 > - I have problems with understanding and conveying tones, might misinterpret your messages too. Please don't use tone tags, they do not help at all and confuse me further.
 > -  If that matters, I'm turning 18 this july.
