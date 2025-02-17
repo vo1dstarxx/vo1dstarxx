@@ -1,15 +1,12 @@
 <img src="https://i.postimg.cc/tCBdb8fB/phightingmedkit.gif" height="90px" width="auto"/> <img src="https://i.postimg.cc/3N7jrhYc/medkitpopit.gif" height="90px" width="auto"/> <img src="https://i.postimg.cc/7hV3fRLY/medkitded.gif" height="90px" width="auto"/> <img src="https://i.postimg.cc/Pfzz3CMs/medkit-phighting.gif" height="90px" width="auto"/> <img src="https://i.postimg.cc/C5HNb1c0/7mk0-2.gif" height="90px" width="auto"/> <img src="https://i.postimg.cc/rF4D2t4p/roblox-medkit.gif" height="90px" width="auto"/> <img src="https://i.postimg.cc/gjCpqWvK/mekik.gif" height="90px" width="auto"/>
 
 ### About
-> - I have problems wording, describing and explaining things.
-> - I misread a lot and may skip something, sorry.
-> - I have problems with understanding and conveying tones, might misinterpret your messages too. Please don't use tone tags, they do not help at all and confuse me further.
-> -  If that matters, I'm turning 18 this july.
+> I have problems with wording, describing and explaining things. At some point I will start muttering gibberish, along with that it's very easy for me to misinterpret/misunderstand something.
 
 <img src="https://i.postimg.cc/gk7nfHjQ/chain2.png" width="100%"/>
 
  ### Please don't start any actual conversations with me
-> - Fit basic criteria (use slurs cannot reclaim, joke about disgusting topics, zionists and whatever whatever etcetera).
+> - Fit basic criteria (use slurs cannot reclaim, joke about sensitive topics, zionists and whatever whatever etcetera).
 > - Enjoy subkit, subgraft, medsword, sebpainter.
 > - Proshipper, Darkshipper,  Radqueer or use any labels that are only being accepted within radqueer circles, Glorify or into disgusting things (cub, lolishota, incest, pseudo incest, pedo, zoo, noncon, dubcon, etcetera).
 > - Transfur, Anti furry.
