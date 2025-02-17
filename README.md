@@ -3,7 +3,7 @@
 ### About
 > - I have problems wording, describing and explaining things. Along with that I may become incoherent, deffinitely don't feel bad about telling me to reword something.
 > - I misread a lot and may skip something, sorry.
-> - I have problems with understanding and conveying tones, might misinterpret your messages too. Please don't use tone tags, they do not help at all and I barely understand how to use them myself.
+> - I have problems with understanding and conveying tones, might misinterpret your messages too. Please don't use tone tags, they do not help at all and confuse me further.
 
 <img src="https://i.postimg.cc/gk7nfHjQ/chain2.png" width="100%"/>
 
