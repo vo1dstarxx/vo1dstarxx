@@ -1,9 +1,9 @@
 <img src="https://i.postimg.cc/tCBdb8fB/phightingmedkit.gif" height="90px" width="auto"/> <img src="https://i.postimg.cc/3N7jrhYc/medkitpopit.gif" height="90px" width="auto"/> <img src="https://i.postimg.cc/7hV3fRLY/medkitded.gif" height="90px" width="auto"/> <img src="https://i.postimg.cc/Pfzz3CMs/medkit-phighting.gif" height="90px" width="auto"/> <img src="https://i.postimg.cc/C5HNb1c0/7mk0-2.gif" height="90px" width="auto"/> <img src="https://i.postimg.cc/rF4D2t4p/roblox-medkit.gif" height="90px" width="auto"/> <img src="https://i.postimg.cc/9MNDCd1D/phighting-medkit.gif" height="90px" width="auto"/>
 
 ### About
-> - I have problems wording, describing and explaining things.
-> - At some point I will deffintiely start saying things just because, aka uttering incoherent gibberish. My bad.
-> - What else to put there. Uhm I think my dark circles are permanent now.
+> - I have problems wording, describing and explaining things. Along with that I may become incoherent, deffinitely don't feel bad about telling me to reword something.
+> - I misread a lot and may skip something, sorry.
+> - I have problems with understanding and conveying tones, might misinterpret your messages too. Please don't use tone tags, they do not help at all and I barely understand how to use them myself.
 
 <img src="https://i.postimg.cc/gk7nfHjQ/chain2.png" width="100%"/>
 
