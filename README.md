@@ -4,6 +4,7 @@
 > - I have problems wording, describing and explaining things. Along with that I may become incoherent, deffinitely don't feel bad about telling me to reword something.
 > - I misread a lot and may skip something, sorry.
 > - I have problems with understanding and conveying tones, might misinterpret your messages too. Please don't use tone tags, they do not help at all and confuse me further.
+> -  If that matters, I'm turning 18 this july.
 
 <img src="https://i.postimg.cc/gk7nfHjQ/chain2.png" width="100%"/>
 
@@ -17,11 +18,11 @@
 
 <img src="https://i.postimg.cc/gk7nfHjQ/chain2.png" width="100%"/>
 
- ### Otherwise,
-> - You are welcome to.
-> - PLEASE use whispers.
-> - Please check my status. None of them are equal to "do not interact", they only reflect how long it may take for me to respond.
-> - Idk. ships? ask.
+ ### If you don't happen to be any of the listen things,
+> - You are welcome to talk to me.
+> - PLEASE use whispers. I'm anxious as fuck over everything being public and also can't see shit.
+> - My status never means "do not interact", it only reflects how long it might take me to see your message and respond.
+> - Uhh ships? ask.
 
 <img src="https://i.postimg.cc/gk7nfHjQ/chain2.png" width="100%"/>
 
