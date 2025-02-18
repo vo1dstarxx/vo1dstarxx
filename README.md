@@ -23,5 +23,5 @@
 
 <img src="https://i.postimg.cc/gk7nfHjQ/chain2.png" width="100%"/>
 
-That's pretty much it. Feel free to ask about anything on there/generally whatever you're curious about. Additionally you can contact me via neospring (<a href="https://neospring.org/@hellstar">@hellstar</a>) or discord (<a href="https://discordid.netlify.app/?id=1336715532321165412">_vo1dstarx</a>), no preference. Bye
+That's pretty much it. Feel free to ask about anything on there/generally whatever you're curious about. Additionally you can contact me via neospring (<a href="https://neospring.org/@hellstar">@hellstar</a>) or discord (<a href="https://discordid.netlify.app/?id=1336715532321165412">_vo1dstarx</a>), no preference. Leave art credits and don't be a little bitch when asked to, bye
 
