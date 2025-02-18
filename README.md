@@ -17,7 +17,7 @@
 
  ### If you don't happen to be any of the listen things,
 > - You are welcome to talk to me.
-> - PLEASE use whispers. I'm anxious as fuck over everything being public and also can't see shit.
+> - PLEASE use whispers.
 > - My status never means "do not interact", it only reflects how long it might take me to see your message and respond.
 > - Uhh ships? ask.
 
