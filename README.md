@@ -8,9 +8,9 @@
 ### Please don't start any actual conversations with me. I don't like you. 
 > Subkit, Subgraft, Medsword, Sebpainter, Proship, Dakrship, Radqueer, Glorify or into gross shit (lolishota, noncon, dubcon, incest, pseudo incest, zoo, pedo and etcetera), Okegom, Support or "tolerate" Dandys wolrd/Flavor frenzy team.
 
-> I don't favor individuals that are entitled to not leave credits, that includes not crediting artwork and skins made by others. Keep that in mind!
+I don't favor individuals that are entitled to not leave credits, that includes not crediting artwork and skins made by others. Keep that in mind!
 
-you can contact me on neospring [(@hellstar)](https://neospring.org/@hellstar), you must ask directly for my discord.
+you can contact me on neospring [(@hellstar)](https://neospring.org/@hellstar), ask for discord.
 
 ![ ](https://file.garden/Z0mJp8fNfWMaZSv3/Resources/stamps/medkit.gif) ![ ](https://file.garden/Z0mJp8fNfWMaZSv3/Resources/stamps/medkit2.gif) ![ ](https://file.garden/Z0mJp8fNfWMaZSv3/Resources/stamps/medkit3.gif) ![ ](https://file.garden/Z0mJp8fNfWMaZSv3/Resources/stamps/medkit4.gif) ![ ](https://file.garden/Z0mJp8fNfWMaZSv3/Resources/stamps/medkit5.gif) ![ ](https://file.garden/Z0mJp8fNfWMaZSv3/Resources/stamps/medkit6.gif) ![ ](https://file.garden/Z0mJp8fNfWMaZSv3/Resources/stamps/medkit7.gif) ![ ](https://file.garden/Z0mJp8fNfWMaZSv3/Resources/stamps/medkit8.gif) ![ ](https://file.garden/Z0mJp8fNfWMaZSv3/Resources/stamps/medkit9.gif) ![ ](https://file.garden/Z0mJp8fNfWMaZSv3/Resources/stamps/uh.gif) ![ ](https://file.garden/Z0mJp8fNfWMaZSv3/Resources/stamps/bive.gif) ![ ](https://file.garden/Z0mJp8fNfWMaZSv3/Resources/stamps/prototype.gif) ![ ](https://file.garden/Z0mJp8fNfWMaZSv3/Resources/stamps/prototype2.gif) ![ ](https://file.garden/Z0mJp8fNfWMaZSv3/Resources/stamps/prototype3.gif) ![ ](https://file.garden/Z0mJp8fNfWMaZSv3/Resources/stamps/local58.png) ![ ](https://file.garden/Z0mJp8fNfWMaZSv3/Resources/stamps/prophet.gif)
 
