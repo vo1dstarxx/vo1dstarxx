@@ -1,5 +1,5 @@
 
-<p align="center"><img src="https://file.garden/Z0mJp8fNfWMaZSv3/Resources/dividers/dino_nuggets.png"/></p>
+<p align="center"><img src="https://file.garden/Z0mJp8fNfWMaZSv3/Resources/dividers/dino_nuggets.png" width="50%"/></p>
 
 ### About
 > I have problems with wording and describing things, can be slow at times and might say something incoherent. Would greatly appreciate if you'd tell me to reword something you don't understand. It may be hard for me to properly convey or pinpoint tones, tone tags don't help sorry. Please use whispers, I am off tab/off doing different things a lot so I will not see your messages otherwise. My pony town status only reflects how long it might take me to respond.
