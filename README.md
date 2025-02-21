@@ -1,27 +1,16 @@
-<img src="https://i.postimg.cc/tCBdb8fB/phightingmedkit.gif" height="90px" width="auto"/> <img src="https://i.postimg.cc/3N7jrhYc/medkitpopit.gif" height="90px" width="auto"/> <img src="https://i.postimg.cc/7hV3fRLY/medkitded.gif" height="90px" width="auto"/> <img src="https://i.postimg.cc/Pfzz3CMs/medkit-phighting.gif" height="90px" width="auto"/> <img src="https://i.postimg.cc/C5HNb1c0/7mk0-2.gif" height="90px" width="auto"/> <img src="https://i.postimg.cc/rF4D2t4p/roblox-medkit.gif" height="90px" width="auto"/> <img src="https://i.postimg.cc/gjCpqWvK/mekik.gif" height="90px" width="auto"/>
+
+<p align="center"><img src="https://file.garden/Z0mJp8fNfWMaZSv3/Resources/dividers/dino_nuggets.png"/></p>
 
 ### About
-> I have problems with wording, describing and explaining things. At some point I will start muttering gibberish, along with that it's very easy for me to misinterpret/misunderstand something.
+> I have problems with wording and describing things, can be slow at times and might say something incoherent. Would greatly appreciate if you'd tell me to reword something you don't understand. It may be hard for me to properly convey or pinpoint tones, tone tags don't help sorry. Please use whispers, I am off tab/off doing different things a lot so I will not see your messages otherwise. My pony town status only reflects how long it might take me to respond.
+> No idea what else to add... Ships? ask.
 
-<img src="https://i.postimg.cc/gk7nfHjQ/chain2.png" width="100%"/>
+### Please don't start any actual conversations with me. I don't like you. 
+> Subkit, Subgraft, Medsword, Sebpainter, Proship, Dakrship, Radqueer, Glorify or into gross shit (lolishota, noncon, dubcon, incest, pseudo incest, zoo, pedo and etcetera), Okegom, Support or "tolerate" Dandys wolrd/Flavor frenzy team.
 
- ### Please don't start any actual conversations with me
-> - Fit basic criteria (use slurs cannot reclaim, joke about sensitive topics, zionists and whatever whatever etcetera).
-> - Enjoy subkit, subgraft, medsword, sebpainter.
-> - Proshipper, Darkshipper,  Radqueer or use any labels that are only being accepted within radqueer circles, Glorify or into disgusting things (cub, lolishota, incest, pseudo incest, pedo, zoo, noncon, dubcon, etcetera).
-> - Transfur, Anti furry.
-> - Support or "neutral" to Dandys World / Flavor Frenzy team.
-> - Under 15.
+> I don't favor individuals that are entitled to not leave credits, that includes not crediting artwork and skins made by others. Keep that in mind!
 
-<img src="https://i.postimg.cc/gk7nfHjQ/chain2.png" width="100%"/>
+![ ](https://file.garden/Z0mJp8fNfWMaZSv3/Resources/stamps/medkit.gif) ![ ](https://file.garden/Z0mJp8fNfWMaZSv3/Resources/stamps/medkit2.gif) ![ ](https://file.garden/Z0mJp8fNfWMaZSv3/Resources/stamps/medkit3.gif) ![ ](https://file.garden/Z0mJp8fNfWMaZSv3/Resources/stamps/medkit4.gif) ![ ](https://file.garden/Z0mJp8fNfWMaZSv3/Resources/stamps/medkit5.gif) ![ ](https://file.garden/Z0mJp8fNfWMaZSv3/Resources/stamps/medkit6.gif) ![ ](https://file.garden/Z0mJp8fNfWMaZSv3/Resources/stamps/medkit7.gif) ![ ](https://file.garden/Z0mJp8fNfWMaZSv3/Resources/stamps/medkit8.gif) ![ ](https://file.garden/Z0mJp8fNfWMaZSv3/Resources/stamps/medkit9.gif) ![ ](https://file.garden/Z0mJp8fNfWMaZSv3/Resources/stamps/uh.gif) ![ ](https://file.garden/Z0mJp8fNfWMaZSv3/Resources/stamps/bive.gif) ![ ](https://file.garden/Z0mJp8fNfWMaZSv3/Resources/stamps/prototype.gif) ![ ](https://file.garden/Z0mJp8fNfWMaZSv3/Resources/stamps/prototype2.gif) ![ ](https://file.garden/Z0mJp8fNfWMaZSv3/Resources/stamps/prototype3.gif) ![ ](https://file.garden/Z0mJp8fNfWMaZSv3/Resources/stamps/biohazard.png) ![ ](https://file.garden/Z0mJp8fNfWMaZSv3/Resources/stamps/iwannasuicied.png) ![ ](https://file.garden/Z0mJp8fNfWMaZSv3/Resources/stamps/local58.png) ![ ](https://file.garden/Z0mJp8fNfWMaZSv3/Resources/stamps/prophet.gif)
+![ ](https://file.garden/Z0mJp8fNfWMaZSv3/Resources/blinkies/by%20me/medkit.gif) ![ ](https://file.garden/Z0mJp8fNfWMaZSv3/Resources/blinkies/radiotrophic/confused.gif) ![ ](https://file.garden/Z0mJp8fNfWMaZSv3/Resources/blinkies/radiotrophic/teadrinker.gif) ![ ](https://file.garden/Z0mJp8fNfWMaZSv3/Resources/blinkies/radiotrophic/busyeatingpizza.gif) ![ ](https://file.garden/Z0mJp8fNfWMaZSv3/Resources/blinkies/radiotrophic/macncheesy.gif) ![ ](https://file.garden/Z0mJp8fNfWMaZSv3/Resources/blinkies/radiotrophic/eatinghotdogs.gif)
 
- ### If you don't happen to be any of the listen things,
-> - You are welcome to talk to me.
-> - PLEASE use whispers.
-> - My status never means "do not interact", it only reflects how long it might take me to see your message and respond.
-> - Uhh ships? ask.
-
-<img src="https://i.postimg.cc/gk7nfHjQ/chain2.png" width="100%"/>
-
-That's pretty much it. Feel free to ask about anything on there/generally whatever you're curious about. Additionally you can contact me via neospring (<a href="https://neospring.org/@hellstar">@hellstar</a>) or discord (<a href="https://discordid.netlify.app/?id=1336715532321165412">_vo1dstarx</a>), no preference. Leave art credits and don't be a little bitch when asked to, bye
-
+all blinkies aside from medkit one are by [radiotrophic](https://www.deviantart.com/radiotrophic), the  medkit one is mine if you care.
