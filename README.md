@@ -7,9 +7,7 @@ Non-partnering and trans, my birthday's on july 4th and my main interest is Phig
 
 I may struggle with wording and describing things, at times may become incoherent and leave actually insane typos, I would greatly appreciate to be told if something I said is impossible to decipher. Along with that I may struggle with correctly pinpointing and conveying tones, tone tags barely help and I actually have no clue how to properly use majority of them.
 
-I am actively trying to act more mature and it is hard due to my possible disorders (if you care stuff I've mentioned before is mostly because of them).
-
-No matter how much I gossip or throw shades with others in private, I am strongly against harrassment and death threats (wow very progressive of me). Live love laugh block button is free, your health is not worth bitchy online argument.
+Live love laugh block button is free, your health is not worth bitchy online argument.
 
 ## Don't start any actual conversations with me ("DNI")
 - Basic criteria (use slurs cannot reclaim, racists zionists ableists and etcetera).
