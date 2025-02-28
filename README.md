@@ -3,7 +3,7 @@
 <img src="https://file.garden/Z0mJp8fNfWMaZSv3/Resources/Pixels/B%26w/envelope.gif" width="20px"/> [strawpage](https://vo1dstarxx.straw.page) | [neospring](https://neospring.org/@hellstar) | [discord](https://discordid.netlify.app/?id=1336715532321165412)
 
 ## About 
-Non-partnering and trans, my birthday's on july 4th and my main interest is Phigting!. I draw from time to time and drink unholy amounts of tea. Enjoy talking about everything, anything and for days straight. Hate all ships that featurr crackerspace and all his fans combined (no puns intended, I am being as genuine as I can).
+Non-partnering and trans, my birthday's on july 4th and my main interest is Phigting!. I draw from time to time, drink unholy amounts of tea and blow up at mischaracterizations. Enjoy talking about everything, anything and for days straight. Hate all ships that feature crackerspace and all his fans.
 
 I may struggle with wording and describing things, at times may become incoherent and leave actually insane typos, I would greatly appreciate to be told if something I said is impossible to decipher. Along with that I may struggle with correctly pinpointing and conveying tones, tone tags barely help and I actually have no clue how to properly use majority of them.
 
