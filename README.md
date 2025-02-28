@@ -1,4 +1,4 @@
-<p align="center"><img src="https://file.garden/Z0mJp8fNfWMaZSv3/Resources/page%20dolls/mini_medkit_low_poly_ball.gif" width="30%"/></p>
+<p align="center"><img src="https://file.garden/Z0mJp8fNfWMaZSv3/Resources/page%20dolls/mini_medkit_3d_spin.gif" width="30%"/></p>
 
 <img src="https://file.garden/Z0mJp8fNfWMaZSv3/Resources/Pixels/B%26w/envelope.gif" width="20px"/> [strawpage](https://vo1dstarxx.straw.page) | [neospring](https://neospring.org/@hellstar) | [discord](https://discordid.netlify.app/?id=1336715532321165412)
 
