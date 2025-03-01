@@ -7,8 +7,7 @@ Non-partnering and trans, my birthday's on july 4th and my main interest is Phig
 
 I may struggle with wording and describing things, at times may become incoherent and leave actually insane typos, I would greatly appreciate to be told if something I said is impossible to decipher. Along with that I may struggle with correctly pinpointing and conveying tones, tone tags barely help and I actually have no clue how to properly use majority of them.
 
-Live love laugh block button is free, your health is not worth bitchy online argument. Also I'm a little liberal softie snowflake, so I find fatphobic ableist and any -ist jokes gross.
-
+Live love laugh block button is free, your health is not worth bitchy online argument. Also I'm a little liberal softie snowflake and I find "big back" jokes disgusting, deal with it.
 ## Don't start any actual conversations with me ("DNI")
 - Basic criteria (use slurs cannot reclaim, racists zionists ableists and etcetera).
 - A subkit, subgraft, medsword or sebpainter enjoyer.
