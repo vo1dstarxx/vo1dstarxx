@@ -15,7 +15,7 @@ Also I am a liberal softie snowflake, aka cannot stand dark "humour" and anythin
 - Profic, proshipper, darkshipper or into gross shit (lolishota, noncon, dubcon, incest, pseudo incest, pedo, zoo and etcetera).
 - Radqueer or use any related labels (rcta, transid, zoophilegender or some other shit).
 - Transfur or anti furry.
-- Okegom, your boyfriend, tcoaal.
+- Okegom, your boyfriend, tcoaal, dsmp.
 - Support/"tolerate" dandy's world dev team and associates.
 - Under 15.
 - Entitled to not leave credits (yes that includes art creds and skin creds) /srs.
