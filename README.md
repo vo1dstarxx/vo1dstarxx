@@ -7,7 +7,7 @@ Non-partnering and trans, my birthday's on july 4th and my main interest is Phig
 
 I may struggle with wording and describing things, at times may become incoherent and leave actually insane typos, I would greatly appreciate to be told if something I said is impossible to decipher. Along with that I may struggle with correctly pinpointing and conveying tones, tone tags barely help and I actually have no clue how to properly use majority of them.
 
-Also I am a liberal softie snowflake, aka cannot stand dark "humour" and anything of the sort!♥
+Also I am a liberal softie snowflake, I do not find enjoyment in offensive humour and such.
 
 ## Don't start any actual conversations with me (DNI)
 - Basic criteria (use slurs cannot reclaim, racists zionists ableists and etcetera).
