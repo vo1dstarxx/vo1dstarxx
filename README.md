@@ -11,7 +11,7 @@ Usually my pony town cosplays are ones of my kins, but please do not refer to me
 
 Also I am a liberal softie snowflake, I do not find enjoyment in offensive humour and such.
 
-## I don't like you
+## I despise you
 - Basic criteria (use slurs cannot reclaim, racists zionists ableists and etcetera).
 - A subkit, subgraft, medsword or sebpainter enjoyer.
 - Profic, proshipper, darkshipper or into gross shit (lolishota, noncon, dubcon, incest, pseudo incest, pedo, zoo and etcetera).
