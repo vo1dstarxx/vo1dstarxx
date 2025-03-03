@@ -36,6 +36,6 @@ If you disagree with my views block and move on, I'm tired of discourse and usel
 last 4 are by radiotrophic on deviantart.
 </details>
 
-you can skip all foreplay mumbo jumbo and add me on discord right away,,,,just so you know. 
+if you have any questions you can whisper me, use neospring (i beleive i have receiving anons from unregistered users on) or add me on discord.
 
 ![](https://komarev.com/ghpvc/?username=vo1dstarxx&color=2CBEA1&style=plastic)
