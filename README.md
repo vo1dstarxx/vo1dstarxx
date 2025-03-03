@@ -9,7 +9,7 @@ I may struggle with wording and describing things, at times may become incoheren
 
 Also I am a liberal softie snowflake, I do not find enjoyment in offensive humour and such.
 
-## Don't start any actual conversations with me (DNI)
+## I don't like you
 - Basic criteria (use slurs cannot reclaim, racists zionists ableists and etcetera).
 - A subkit, subgraft, medsword or sebpainter enjoyer.
 - Profic, proshipper, darkshipper or into gross shit (lolishota, noncon, dubcon, incest, pseudo incest, pedo, zoo and etcetera).
