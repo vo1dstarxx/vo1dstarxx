@@ -19,7 +19,6 @@ Also I am a liberal softie snowflake, I do not find enjoyment in offensive humou
 - Transfur or anti furry.
 - Okegom, your boyfriend, tcoaal, dsmp.
 - Support/"tolerate" dandy's world dev team and associates.
-- Under 15.
 - Entitled to not leave credits (yes that includes art creds and skin creds) /srs.
 
 If you disagree with my views block and move on, I'm tired of discourse and useless fights. Obviously I have every right to dislike you for reasons unrelated (just like you do me), get a grip.
