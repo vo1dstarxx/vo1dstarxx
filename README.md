@@ -7,6 +7,8 @@ Non-partnering and trans, my birthday's on july 4th and my main interest is Phig
 
 I may struggle with wording and describing things, at times may become incoherent and leave actually insane typos, I would greatly appreciate to be told if something I said is impossible to decipher. Along with that I may struggle with correctly pinpointing and conveying tones, tone tags barely help and I actually have no clue how to properly use majority of them.
 
+Usually my pony town cosplays are ones of my kins, but please do not refer to me as them or by their names.
+
 Also I am a liberal softie snowflake, I do not find enjoyment in offensive humour and such.
 
 ## I don't like you
