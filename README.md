@@ -1,13 +1,26 @@
-<h2>Do not interact, no exceptions.</h2>
+<img src="https://file.garden/Z0mJp8fNfWMaZSv3/github/lpy89h.png" width="100%"/>
 
->**Subkit, Subgraft, Medsword, Sebpainter, Profic, Proship, Darkship, Into gross shit (lolishota, abusive relationships, incest, pseudo incest, noncon, dubcon, pedo, zoo and etcetera), Radqueer, Transfur, Anti furry, Tcoaal, Okegom, Entitled to not leave credits.**
+<h2><img src="https://file.garden/Z0mJp8fNfWMaZSv3/github/1.png"/> Do not interact, no exceptions</h2>
 
-I have no desire to make a 9 page dni list, so some things I also hate are being left out. Just be aware that they're in one way or another related to everything listed.
-<p align="center"><img src="https://file.garden/Z0mJp8fNfWMaZSv3/github/ezgif-53cbd09f0fb5a5.gif" width="70%"/></p>
-<h2>About</h2>
+>Subkit, Subgraft, Medsword, Sebpainter, Profic, Proship, Darkship, Into gross shit (lolishota, abusive relationships, incest, pseudo incest, noncon, pedo, zoo and etcetera), Radqueer, Transfur, Anti furry,
+>Tcoaal, Okegom, Entitled to not leave credits.
 
-![ ](https://file.garden/Z0mJp8fNfWMaZSv3/Resources/blinkies/radiotrophic/eatinghotdogs.gif) ![ ](https://file.garden/Z0mJp8fNfWMaZSv3/Resources/blinkies/radiotrophic/busyeatingpizza.gif) ![ ](https://file.garden/Z0mJp8fNfWMaZSv3/Resources/blinkies/by%20me/medhammer2.gif)
+<h2><img src="https://file.garden/Z0mJp8fNfWMaZSv3/github/2.png"/> About</h2>
 
-wip
+>I have no idea what my gender is, just know that I'm something something masc, also I'm afab. If that matters I am deffinitely not straight, as of now not interested in partnering. My current interest only includes phighting!, I am into other roblox games but not as much. Most of my time is spent listening to music, watching youtube, probably attempting to make rentry decorations or to draw.
 
-<img src="https://file.garden/Z0mJp8fNfWMaZSv3/github/1za8jg.gif"/><a href="https://vo1dstarxx.atabook.org/">atabook</a> | <a href="https://neospring.org/@vo1dstarxx">neospring</a> | <a href="https://ask.absturztau.be/@Vo1dstarxx">fragsturztaube</a> | ask for discord</p>
+<h2><img src="https://file.garden/Z0mJp8fNfWMaZSv3/github/3.png"/> Pony town status meaning</h2>
+
+> Away — I am offtab, aka doing something else in browser.<br/>
+> Busy — I am either away from my computer or doing something else off-browser, if you wish to contact me doing so through pony town is not recommended.<br/>
+
+<h2><img src="https://file.garden/Z0mJp8fNfWMaZSv3/github/4.png"/> Links</h2>
+
+><a href="https://discordid.netlify.app/?id=1336715532321165412">Discord</a> — Best way to contact me, as I'll always find out about your dms.<br/>
+> <a href="https://vo1dstarxx.atabook.org/">Atabook</a> — I don't think this needs any explanation. Leave a sign and that's it.<br/>
+> <a href="https://neospring.org/@vo1dstarxx">Neospring</a> — ask me questions through this (or leave a sign instead of ata), I am most active on there.</br>
+<br/>
+
+<p align="center"><img src="https://file.garden/Z0mJp8fNfWMaZSv3/github/makesweet-fa1w1y.gif" width="30%"/></p>
+<br/>
+<img src="https://file.garden/Z0mJp8fNfWMaZSv3/github/lpy89h2.png" width="100%"/>
