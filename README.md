@@ -7,8 +7,7 @@
 
 <h2><img src="https://file.garden/Z0mJp8fNfWMaZSv3/github/2.png"/> About</h2>
 
->I have no idea what my gender is, just know that I'm something something masc, also I'm afab. If that matters I am deffinitely not straight, as of now not interested in partnering. My current interest only includes phighting!, I am into other roblox games but not as much. Most of my time is spent listening to music, watching youtube, probably attempting to make rentry decorations or to draw.
-
+>I have no idea what my gender is, just know that I'm something something masc, also afab. If that matters I am deffinitely not straight, as of now not interested in partnering. My current interest only includes phighting!, I am into other roblox games but not as much. Most of my time is spent listening to music, watching youtube, probably attempting to make rentry decorations or to draw. I am medicacted, have problems with wording and describing things, as well may become incoherent. It may be hard for me to properly understand or convey tones, please do not go out of your way to use tone tags with me (they barely help). Always open to new friendships, I am socially inept so please do not be afraid to say something first.
 <h2><img src="https://file.garden/Z0mJp8fNfWMaZSv3/github/3.png"/> Pony town status meaning</h2>
 
 > Away — I am offtab, aka doing something else in browser.<br/>
@@ -21,6 +20,6 @@
 > <a href="https://neospring.org/@vo1dstarxx">Neospring</a> — ask me questions through this (or leave a sign instead of ata), I am most active on there.</br>
 <br/>
 
-<p align="center"><img src="https://file.garden/Z0mJp8fNfWMaZSv3/github/makesweet-fa1w1y.gif" width="30%"/></p>
+<p align="center"><img src="https://file.garden/Z0mJp8fNfWMaZSv3/github/makesweet-fa1w1y.gif" width="50%"/></p>
 <br/>
 <img src="https://file.garden/Z0mJp8fNfWMaZSv3/github/lpy89h2.png" width="100%"/>
