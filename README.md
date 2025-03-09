@@ -7,11 +7,9 @@
 
 <h2><img src="https://file.garden/Z0mJp8fNfWMaZSv3/github/2.png"/> About</h2>
 
-> I'm Bryce. He/him is preferred, they/them is fine too. as of now I'm 17 and was birthed on july 4th. I have no idea what my gender is, only know that I'm something something masc and afab.
-
-My current interest includes phighting!, I am into other roblox games but not as much. Aside from that from time to time I attempt to draw.
-
-If you need to know yes I am open to new friendships and such.
+> I'm Bryce. He/him is preferred, they/them is fine too. as of now I'm 17 and was birthed on july 4th. I have no idea what my gender is, only know that I'm something something masc and afab.<br/>
+> My current interest includes phighting!, I am into other roblox games but not as much. Aside from that from time to time I attempt to draw.<br/>
+> If you need to know yes I am open to new friendships and such.
 
 <h2><img src="https://file.garden/Z0mJp8fNfWMaZSv3/github/3.png"/>Status meaning</h2>
 
