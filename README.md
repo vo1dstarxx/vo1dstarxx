@@ -12,12 +12,12 @@
 >I have problems with wording and describing things, may misinterpret tone or not properly convey it myself. I am medicated, may act immature as one of my disorders is yet to be handled.<br/>
 > If you need to know yes I am open to new friendships and such.
 
-<h2><img src="https://file.garden/Z0mJp8fNfWMaZSv3/github/3.png"/>Status meaning</h2>
+<h2><img src="https://file.garden/Z0mJp8fNfWMaZSv3/github/3.png"/> Status meaning</h2>
 
 > Away — I am offtab, aka doing something else in browser.<br/>
 > Busy — I am either away from my computer or doing something else off-browser, if you wish to contact me doing so through pony town is not recommended.<br/>
 
-<h2><img src="https://file.garden/Z0mJp8fNfWMaZSv3/github/4.png"/>Links and socials</h2>
+<h2><img src="https://file.garden/Z0mJp8fNfWMaZSv3/github/4.png"/> Links and socials</h2>
 
 ><a href="https://discordid.netlify.app/?id=1336715532321165412">Discord</a> — Best way to contact me, as I'll always find out about your dms.<br/>
 > <a href="https://vo1dstarxx.atabook.org/">Atabook</a> — I don't think this needs any explanation. Leave a sign and that's it.<br/>
