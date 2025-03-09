@@ -9,6 +9,7 @@
 
 > I'm Bryce. He/him is preferred, they/them is fine too. as of now I'm 17 and was birthed on july 4th. I have no idea what my gender is, only know that I'm something something masc and afab.<br/>
 > My current interest includes phighting!, I am into other roblox games but not as much. Aside from that from time to time I attempt to draw.<br/>
+>I have problems with wording and describing things, may misinterpret tone or not properly convey it myself. I am medicated, may act immature as one of my disorders is yet to be handled.<br/>
 > If you need to know yes I am open to new friendships and such.
 
 <h2><img src="https://file.garden/Z0mJp8fNfWMaZSv3/github/3.png"/>Status meaning</h2>
