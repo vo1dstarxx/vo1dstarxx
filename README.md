@@ -2,8 +2,7 @@
 
 <h2><img src="https://file.garden/Z0mJp8fNfWMaZSv3/github/1.png"/> DNI</h2>
 
->Subkit, Subgraft, Medsword, Sebpainter, Profic, Proship, Darkship, Into gross shit (lolishota, abusive relationships, incest, pseudo incest, noncon, pedo, zoo and etcetera), Radqueer, Transfur, Anti furry,
->Tcoaal, Okegom, Entitled to not leave credits.
+>Subkit, Subgraft, Medsword, Sebpainter, Profic, Proship, Darkship, Entitled to not leave credits.
 
 <h2><img src="https://file.garden/Z0mJp8fNfWMaZSv3/github/2.png"/> About</h2>
 
